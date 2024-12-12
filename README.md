@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm a student 
+I'm done my bachelor of computer application 
+Now I join to MCA in East West institute of technology 
 
 
 ## 🌐 Socials:
